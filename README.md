@@ -1,1 +1,1 @@
-# Ecuador_my_adventures
+# Ecuador my adventures
